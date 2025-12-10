@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Peter Farag
+# 👋 Hello hello, ITS PETER
 
 **Entrepreneur | Mathematician | Algorithm Developer | CEO @ SP Cloud**  
 New York, NY, USA  
